@@ -1,1 +1,3 @@
 # CHARLES BRONSON  -  DAS WEISSE IM AUGE
+
+„Ich vermute, ich sehe aus wie ein Steinblock, den man in die Luft gesprengt hat“, sagte Bronson über sich selbst. Ab den späten 1960er Jahren bewegte er sich als Western- und Actionheld in einem relativ eng definierten Rollenfach. Von der Filmkritik wurde er nicht als hochklassiger Darsteller eingeschätzt, sondern galt als reiner Genre-Star ohne besondere schauspielerische Fähigkeiten. 
