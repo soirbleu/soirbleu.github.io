@@ -19,4 +19,4 @@
 
 >"We don't make movies for critics, since they don't pay to see them anyhow."
 
-img src = "https://images.amcnetworks.com/blogs.amctv.com/wp-content/uploads/2010/09/magnificent-seven-bronson-280.jpg"
+<img src = "https://images.amcnetworks.com/blogs.amctv.com/wp-content/uploads/2010/09/magnificent-seven-bronson-280.jpg"/>
