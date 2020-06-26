@@ -11,3 +11,10 @@
 * stammte aus einer litauischen Familie
 * hatte größeren Erfolg in Europa als in USA
 * sagte einmal: "I don’t like to overtalk a thing … Because I’m entertained more by my own thoughts than by the thoughts of others."
+
+
+## Was Bronson sonst noch sagte 
+
+>I supply a presence. There are never any long dialogue scenes to establish a character.
+
+>"We don't make movies for critics, since they don't pay to see them anyhow."
